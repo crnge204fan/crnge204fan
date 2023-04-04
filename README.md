@@ -1,5 +1,7 @@
 ![pixel_pink_welcome_banner_by_momoko_chu_d715baz-fullview](https://user-images.githubusercontent.com/129824748/229697871-d6ae470c-d8ea-41fc-a80f-1678aa2a0594.png)
 
+![ddushxf-ad12dc3f-c610-42bc-bd19-3d12a5321be7](https://user-images.githubusercontent.com/129824748/229701754-12908bce-bf9e-4b93-bcb7-f939da5fd12f.gif)
+
 ![d9zzahj-3e8932eb-0c38-4ee2-a7b7-53b356e0b12d](https://user-images.githubusercontent.com/129824748/229697884-dc55b740-378d-4957-b322-88ac1f726deb.gif)
 
 ![d3i9rsm-b98577cf-50da-4556-a232-b668bdf70940](https://user-images.githubusercontent.com/129824748/229697893-4f3d579f-713f-484d-973a-4ada25859ae4.gif)
@@ -24,5 +26,13 @@
 
 ![ddkw4s9-a35454fe-6db7-4004-9fab-841d6a9ab346](https://user-images.githubusercontent.com/129824748/229699985-9336f165-d423-4753-9d43-de95f42bdc7b.gif)
 
+![db4uvbz-7d1490b8-6ae7-4b22-98dc-53dd8782b3b4](https://user-images.githubusercontent.com/129824748/229701788-de53683d-0efb-4e7e-9626-7ec7ee92262f.gif)
 
+![de13e6l-8b5caa05-788b-43f4-b485-fa7b9ef5203a](https://user-images.githubusercontent.com/129824748/229701800-e2796845-942f-4c75-ba95-2526d65238c8.gif)
+
+![sakura_divider_for_laubun_l_nf2u_by_nerdy_pixel_girl_dcirk1p-fullview](https://user-images.githubusercontent.com/129824748/229701812-bfeb4af1-bc53-4f7f-8ef3-1ad907696227.png)
+
+![dbitycx-455de20b-90ab-4ca2-b569-69372cb1e294](https://user-images.githubusercontent.com/129824748/229701850-d1f8caeb-4427-4c86-b460-0e9d21776992.gif)
+
+![i_believe_in_pink_by_king_lulu_deer_dcb6qv1-fullview](https://user-images.githubusercontent.com/129824748/229701871-865b55a7-3305-4b49-8f81-a15502be4bde.png)
 
