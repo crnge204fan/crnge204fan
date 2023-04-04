@@ -15,8 +15,6 @@
 
 ![pixel_ciggies__recolours_by_namelessfeline_daebpri-fullview](https://user-images.githubusercontent.com/129824748/229699912-d0166fd4-c916-4a1c-a4e1-d0862b99218d.png)
 
-![ddub4ke-ad2c86d4-3b49-4f4b-a364-84e48ccda441](https://user-images.githubusercontent.com/129824748/229699922-7d9fc013-ab4a-496c-b7b5-d469bc7d055d.gif)
-
 ![db37sqn-902a0736-3aa8-4955-8caf-406190b9f0b7](https://user-images.githubusercontent.com/129824748/229699944-df4a0b88-b1e0-4cb0-988e-2c941fba0eb9.gif)
 
 ![pill_divider_f2u_by_nerdy_pixel_girl_dc1ml7b-fullview](https://user-images.githubusercontent.com/129824748/229699953-33b22458-533c-46fb-95e9-8313a71b6836.png)
