@@ -23,8 +23,6 @@
 
 ![ddkw4s9-a35454fe-6db7-4004-9fab-841d6a9ab346](https://user-images.githubusercontent.com/129824748/229699985-9336f165-d423-4753-9d43-de95f42bdc7b.gif)
 
-![db4uvbz-7d1490b8-6ae7-4b22-98dc-53dd8782b3b4](https://user-images.githubusercontent.com/129824748/229701788-de53683d-0efb-4e7e-9626-7ec7ee92262f.gif)
-
 ![de13e6l-8b5caa05-788b-43f4-b485-fa7b9ef5203a](https://user-images.githubusercontent.com/129824748/229701800-e2796845-942f-4c75-ba95-2526d65238c8.gif)
 
 ![sakura_divider_for_laubun_l_nf2u_by_nerdy_pixel_girl_dcirk1p-fullview](https://user-images.githubusercontent.com/129824748/229701812-bfeb4af1-bc53-4f7f-8ef3-1ad907696227.png)
