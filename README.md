@@ -7,7 +7,7 @@
 names i go by most are **DARREN** or REN ;; no she/her prns ![e7896505](https://user-images.githubusercontent.com/129824748/229717115-c95b81f1-34e5-4963-a5aa-d1b3af65d966.gif)
 
 
-13-15, MLM, transmasc, genderflux, demisexual & taken (ily [crnge](https://github.com/crnge204) !!!) ![mlm_pixel_flag__f2u__by_tr_ee_deg5kbh-fullview](https://user-images.githubusercontent.com/129824748/229719043-914a268a-a92d-4332-8a40-9cce6d8abf60.png) ![dd9ssz6-f568b828-eca1-4c63-8623-f72aa523013d](https://user-images.githubusercontent.com/129824748/229719064-b80bc1ca-0ece-4ce4-886d-0d76710ea80a.png) ![dbw2gzf-864430c0-386a-4df1-8c0e-7a469e0c07bc](https://user-images.githubusercontent.com/129824748/229719078-1db41d00-d141-41a6-8001-7f18521bbc72.png)
+13-15, MLM, transmasc, genderflux, demisexual & taken (ily [crnge](https://github.com/crnge204) !!!) ![mlm_pixel_flag__f2u__by_tr_ee_deg5kbh-fullview](https://user-images.githubusercontent.com/129824748/229719043-914a268a-a92d-4332-8a40-9cce6d8abf60.png) ![dd9ssz6-f568b828-eca1-4c63-8623-f72aa523013d](https://user-images.githubusercontent.com/129824748/229719064-b80bc1ca-0ece-4ce4-886d-0d76710ea80a.png) ![dbw2gzf-864430c0-386a-4df1-8c0e-7a469e0c07bc](https://user-images.githubusercontent.com/129824748/229719078-1db41d00-d141-41a6-8001-7f18521bbc72.png) | happily brainwashed
 
 
 ENG / i speak english & a *little* german 
